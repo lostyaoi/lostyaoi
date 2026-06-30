@@ -6,7 +6,7 @@ DNI if homophobic, rasict, just a hater for no absolute reason, All that basic s
 
 I'm taken by my lovely boyfriend 
 
-<img src="1374172348030390383/1521377709312180244">
+<img src="1374172348030390383/152137770931218024">
 
 
     Thank you for being the victim to my shallow emotions
