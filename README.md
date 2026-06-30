@@ -1,3 +1,6 @@
+<img width="736" height="414" alt="Untitled16_20260630101019" src="https://github.com/user-attachments/assets/f3c12abc-e834-44f6-bea1-f36678daf54a" />
+
+
 ⸝  ⸝   
        int, c+h freely   I do have my limits
 bmf 13-18
