@@ -1,23 +1,15 @@
 <img width="736" height="414" alt="Untitled16_20260630101019" src="https://github.com/user-attachments/assets/f3c12abc-e834-44f6-bea1-f36678daf54a" />
 ⸝  ⸝   
-       int, c+h freely   I do have my limits
-bmf 13-18
+        C+H   Freely    INT  
+        
+usually with friends  
 
-DNI if homophobic, rasict, just a hater for no absolute reason, All that basic stuff
-
-I'm taken by my lovely boyfriend 
-
-
-
-<img width="500" height="281" alt="56939eaada6c55621f9c8cb644e203bc" src="https://github.com/user-attachments/assets/c48e1578-aaf6-46f9-acf7-46c373f4b059" />
+<img width="736" height="414" alt="f76679047096d44402de3e3ef928f26d" src="https://github.com/user-attachments/assets/e7288db7-bd2d-436b-8b10-f425cf022ea5" />
 
 
 
 
-<img width="736" height="397" alt="d0f11c86f3e8e90e4d42e7fa4d562b0f" src="https://github.com/user-attachments/assets/e891506f-c890-4423-b708-e17c95a3c665" />
+DO NOT flirt with me 
 
-
-Thank you for being the victim to my shallow emotions  
-
-
-
+ 
+   <img width="736" height="670" alt="c0390478f2346031889b202a6801916b" src="https://github.com/user-attachments/assets/47f85bd5-3ab6-4747-957f-5d32a9b175bc" />
