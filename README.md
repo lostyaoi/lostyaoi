@@ -1,8 +1,10 @@
 <img width="736" height="414" alt="Untitled16_20260630101019" src="https://github.com/user-attachments/assets/f3c12abc-e834-44f6-bea1-f36678daf54a" />
 ⸝  ⸝   
-        C+H   Freely    INT  
+        C+H   Freely        
         
-usually with friends  
+        INT  
+        
+              usually with friends  
 
 <img width="736" height="414" alt="f76679047096d44402de3e3ef928f26d" src="https://github.com/user-attachments/assets/e7288db7-bd2d-436b-8b10-f425cf022ea5" />
 
