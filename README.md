@@ -18,5 +18,10 @@ DO NOT flirt with me
 
  
 (^_^) 
+
+        AOUAD 
    
-   <img width="736" height="670" alt="c0390478f2346031889b202a6801916b" src="https://github.com/user-attachments/assets/47f85bd5-3ab6-4747-957f-5d32a9b175bc" />
+
+
+   <img width="736" height="414" alt="a8d69e55b7ff95867b3784de127529f9" src="https://github.com/user-attachments/assets/0eddfd6b-3eba-42f5-9e47-8777507377ac" />
+
