@@ -20,14 +20,14 @@
 
 DO NOT flirt with me 
 
+<img width="736" height="246" alt="1000000297" src="https://github.com/user-attachments/assets/f0408996-642f-4095-8ae5-01571b2fad93" />
  
 (^_^) 
 
-        AOUAD 
+        Jamie < 3
+        
+   <img width="736" height="414" alt="1000000296" src="https://github.com/user-attachments/assets/ad389fc8-8148-4d29-a6a1-bf4889b0f515" />
+
+
+
    
-
-
-   <img width="736" height="414" alt="a8d69e55b7ff95867b3784de127529f9" src="https://github.com/user-attachments/assets/0eddfd6b-3eba-42f5-9e47-8777507377ac" />
-
-Person I bully 24/7 LOLLL
-<img width="720" height="257" alt="Screenshot_20260704_141914_Samsung Internet" src="https://github.com/user-attachments/assets/6373a1be-19e8-4542-8757-8162d475c7cf" />
