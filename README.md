@@ -20,6 +20,7 @@
 
 DO NOT flirt with me 
 
+I have a bf okay ! 
 <img width="736" height="246" alt="1000000297" src="https://github.com/user-attachments/assets/f0408996-642f-4095-8ae5-01571b2fad93" />
  
 (^_^) 
