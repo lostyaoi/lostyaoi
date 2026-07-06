@@ -8,7 +8,7 @@
         INT  
         
  
-こんにちは               
+  오직 다음에서만             
 
 
         usually with friends  
