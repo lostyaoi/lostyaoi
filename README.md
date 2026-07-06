@@ -8,7 +8,10 @@
         INT  
         
  
-こんにちは             usually with friends  
+こんにちは               
+
+
+        usually with friends  
 
 <img width="736" height="598" alt="1000000293" src="https://github.com/user-attachments/assets/00838c52-e40e-4ab5-8a8a-0b3d20b1acd2" />
 
