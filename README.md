@@ -11,10 +11,11 @@
          오직 다음에서만             
             
 
-        usually with friends  
+        Usually with friends
 
-<img width="736" height="414" alt="1000000310" src="https://github.com/user-attachments/assets/486025e7-f252-4369-9201-1771d4937695" />
+        
 
+<img width="735" height="477" alt="88ab39b20a40e66e96a9da7faa2528ea" src="https://github.com/user-attachments/assets/9d7e04eb-e113-4ca0-bbb1-96e72ce3d0ce" />
 
 
 
