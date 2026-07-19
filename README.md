@@ -33,7 +33,8 @@ one of the most important things in ur life is friendship, I'm grateful I have t
 
         Jamie < 3
         
-   
+ look at this bum copy my r7 till OMG @bunluke DNII
+<img width="717" height="679" alt="Screenshot_20260719_005005_Pony Town" src="https://github.com/user-attachments/assets/8b189410-d4f0-496a-9136-7968c3f037dc" />
 
 
 
