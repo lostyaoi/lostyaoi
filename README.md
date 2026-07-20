@@ -1,41 +1,17 @@
+    " 𝘮𝘢𝘺 𝘺𝘰𝘶 𝘭𝘪𝘷𝘦 𝘭𝘪𝘧𝘦 𝘵𝘩𝘦 𝘧𝘶𝘭𝘭𝘦𝘴𝘵 "
 
 
 
+ ♰    ,     megumi kin    little abt me
+
+ <img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
 
     
-        C+H   Freely        
-        
-        INT  
-        
-                         
-         오직 다음에서만             
-            
+      huge megumi fan    love to c+h unless stated in name ^-^    
 
-        Usually with friends
-
-        
-I love making frens okay?? 
-
-
-<img width="600" height="395" alt="3e4d058e91d9ef18c01b91744b2bc542" src="https://github.com/user-attachments/assets/90f1ff44-6d7c-4a8f-b834-b7dac713067b" />
+         no dni I block freely
 
 
 
-
-
-
+    <img width="736" height="414" alt="03bd8a3a5141f985ff8e7d9e1e6fe43d" src="https://github.com/user-attachments/assets/7ffde3f2-c269-4406-aa73-a386edf4ae9c" />
  
-
-one of the most important things in ur life is friendship, I'm grateful I have them ♡
-
- 
-(^_^) 
-
-        Jamie < 3
-        
- look at this bum copy my r7 till OMG @bunluke DNII
-<img width="717" height="679" alt="Screenshot_20260719_005005_Pony Town" src="https://github.com/user-attachments/assets/8b189410-d4f0-496a-9136-7968c3f037dc" />
-
-
-
-   
