@@ -2,9 +2,9 @@
 
 
 
- ♰    ,     megumi kin    little abt me
-
- <img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
+ ♰    ,     megumi kin    
+ 
+<img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
 
     
       huge megumi fan    love to c+h unless stated in name ^-^    
@@ -13,6 +13,7 @@
 
 
 
-<img width="736" height="613" alt="1737f9f827f399deaeef2208a4803943" src="https://github.com/user-attachments/assets/72d3fd7f-380e-43d2-bc83-b9126d847053" />
+<img width="99" height="56" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f33363236323362643832643937336561663239306339366436313237303834652f666464636639633034316438646130612d38312f73313030783230302f3034643933343065" src="https://github.com/user-attachments/assets/7b3c1e3c-9f85-4f15-b773-5dfc19eefa9b" />
+
 
  
