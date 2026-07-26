@@ -2,12 +2,12 @@
 
 
 
- ♰    ,    kins : megumi,ivan,zanka
+ ♰    ,    kins : ivan,zanka, megumi
  
 <img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
 
     
-      huge megumi fan    love to c+h unless stated in name ^-^    
+      huge Ivan fan    love to c+h unless stated in name ^-^    
 
          no dni I block freely
 
