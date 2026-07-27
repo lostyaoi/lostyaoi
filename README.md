@@ -1,10 +1,14 @@
+
+ <img width="736" height="414" alt="Untitled16" src="https://github.com/user-attachments/assets/13ddc09a-3545-4401-9dc9-ecfba9439b23" />
+   
+    
     " 𝘮𝘢𝘺 𝘺𝘰𝘶 𝘭𝘪𝘷𝘦 𝘭𝘪𝘧𝘦 𝘵𝘩𝘦 𝘧𝘶𝘭𝘭𝘦𝘴𝘵 "
 
 
 
  ♰    ,    kins : ivan,zanka, Andrew young, megumi
  
-<img width="736" height="414" alt="e2c8aff78b2fa15df7372a986506e624" src="https://github.com/user-attachments/assets/be498539-4ef5-44de-b19e-84d9a58b948a" />
+
 
  />
 
