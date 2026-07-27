@@ -4,7 +4,9 @@
 
  ♰    ,    kins : ivan,zanka, Andrew young, megumi
  
-<img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
+<img width="736" height="414" alt="e2c8aff78b2fa15df7372a986506e624" src="https://github.com/user-attachments/assets/be498539-4ef5-44de-b19e-84d9a58b948a" />
+
+ />
 
     
       huge Ivan fan    love to c+h unless stated in name ^-^    
