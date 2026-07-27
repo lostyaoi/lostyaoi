@@ -2,7 +2,7 @@
 
 
 
- ♰    ,    kins : ivan,zanka, megumi
+ ♰    ,    kins : ivan,zanka, Andrew young, megumi
  
 <img width="734" height="392" alt="Untitled23_20260719205534" src="https://github.com/user-attachments/assets/b8735ba2-774f-4fa8-b603-df8a494fc186" />
 
