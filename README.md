@@ -8,7 +8,11 @@
 rmk in prog
 
 
-<img width="2000" height="2000" alt="Untitled28_20260728104511" src="https://github.com/user-attachments/assets/6e9632ba-c176-4df2-801b-b884db9077bf" />
+
+
+•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈
+
+
 
 
 
