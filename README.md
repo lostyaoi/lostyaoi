@@ -3,7 +3,9 @@
  
 
 
-•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈
+•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈┈┈•┈
+
+rmk in prog
 
 
 
@@ -11,8 +13,5 @@
 
 
 
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/f2cc24c1-0a27-4d43-b0f9-b0c8874a3a4e" />
 
-
-
-
-<img width="736" height="414" alt="Untitled26_20260727223713" src="https://github.com/user-attachments/assets/6d82be95-901e-4760-a391-91a7425a1088" />
