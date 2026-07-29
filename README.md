@@ -6,9 +6,8 @@
 𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡𓎢𓎡  ྀི 𓏼  ꒰ 
 
          мя αηт тєηηα 
-
-
-          <img width="26" height="21" alt="614527373-8029dbdd-bf9b-4331-ab2d-714bd2f40f4b" src="https://github.com/user-attachments/assets/bdcd97cf-e8d1-4375-900e-4af622bdf6d5" />
+         
+<img width="26" height="21" alt="614527373-8029dbdd-bf9b-4331-ab2d-714bd2f40f4b" src="https://github.com/user-attachments/assets/bdcd97cf-e8d1-4375-900e-4af622bdf6d5" />
 <img width="26" height="21" alt="614527485-4a36619a-6918-4ea1-8603-9440b571446e" src="https://github.com/user-attachments/assets/8324fb74-3189-4690-903d-83c8f9f19081" />
 
 
