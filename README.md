@@ -25,4 +25,4 @@
    <img width="150" height="20" alt="1000000426" src="https://github.com/user-attachments/assets/f6f7e4b5-2c9b-475c-9bbe-23477660dff5" />
 
 
- 
+   ℓσσкѕ вєттєя ση ℓαρтσρ
